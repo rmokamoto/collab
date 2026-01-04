@@ -5,10 +5,11 @@ Repo for collaborating with Becky
 
 ### traits: 
 Cardamom: curious, friendly, outgoing, and a bit OVER playfull.  But on the inside Cardamom is scared of making a mistake or saying something wrong.
+
 Nutmeg: Slightly jumpy, shy, 
 
-Antagonist:
+## Antagonist:
 
-Problem:
+## Problem:
 
-Location:
+## Location:
