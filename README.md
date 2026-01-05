@@ -1,4 +1,4 @@
-a# collab
+# collab
 Repo for collaborating with Becky
 ________________________________________________________________________________________________________________________________________________________
 ## Nutmeg and Cardamom 
@@ -58,8 +58,7 @@ _________________________________________________________
 
 ________________________________________________________________________________________________________________________________________
 ## Becky's Story:
-
-
+    Welcome reader, into our magical forest.  You may be wondering how we got here, its a long story.  But, I suppose we do have time.  Come
 
 
 
