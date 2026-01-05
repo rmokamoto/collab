@@ -62,7 +62,8 @@ ________________________________________________________________________________
     It all started many years ago, in Whisperers Hollow . .. 
     "Stop it!" 
     "No, you stop!"
-    "Mom! Nutmeg's "
+    "Mom Nutmegs in my room again!"
+    "girls-" But its too late, Nutmegs 
 
 
 
