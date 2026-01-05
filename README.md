@@ -25,12 +25,11 @@ Calm and collected, likes to have attention but can be overprotective of her car
 ### Positive:
 ___________________________________
 # Antagonist:
-//Nutmeg: Gets fostered with a mean, sassy cat who hogs all of the attention
-
-### Ria, this has nothing to do with Cardamom, also, I think we should talkk about it before we write anything permanent.  Also, I put // before what you wrote to clarify that it was only an idea. P.S you can delete this after u read it.  P.P.S thats not saying WHO the antagonist is.
-
+//Sulivan (we can change that name), the old cat who lives in the forest, The mean sassy cat that Nutmeg and Cardamom get fostered with,
+----------------
 # Problem:
-
+//Nutmeg Gets fostered with a mean, sassy cat who hogs all of the attention. //Nutmeg and Cardamom are abandonded by their mother and have to find ways to survive on their own.
+----------------
 # Location:
-Different foster homes
-
+//Different foster homes, Park, The wild.
+---------------
