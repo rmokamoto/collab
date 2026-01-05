@@ -58,7 +58,11 @@ _________________________________________________________
 
 ________________________________________________________________________________________________________________________________________
 ## Becky's Story:
-    Welcome reader, into our magical forest.  You may be wondering how we got here, its a long story.  But, I suppose we do have time.  Come
+    Welcome reader, into our magical forest.  You may be wondering how we got here, its a long story.  But, I suppose we do have time.  Come, come join s reader.  Sit down in the old rocking chair and listen as we tell our story.
+    It all started many years ago, in Whisperers Hollow . .. 
+    "Stop it!" 
+    "No, you stop!"
+    "Mom! Nutmeg's "
 
 
 
