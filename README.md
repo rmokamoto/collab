@@ -45,12 +45,9 @@ _________________________________________________________
 
 
 
-
-
-
-
-
-
+was pouncing on Cardamom's yarn balls and messing up her mossy bed.
+    "Nutmeg!" Cardamom ran back into her room and started chasing Nutmeg around and around and around, until they were both resting on the floor, catching their breath and staring at the mess they had created.
+    Their mom walked in, shaking her head at the mess, "You silly kittens! Now both of you will have to clean up Cardamom's room all over again!"
 
 
 
@@ -63,18 +60,10 @@ ________________________________________________________________________________
     "Stop it!" 
     "No, you stop!"
     "Mom, Nutmeg's in my room again!"
-    "Girls-" But it was too late, Nutmeg was pouncing on Cardamom's yarn balls and messing up her mossy bed.
-    "Nutmeg!" Cardamom ran back into her room and started chasing Nutmeg around and around and around, until they were both resting on the floor, catching their breath and staring at the mess they had created.
-    Their mom walked in, shaking her head at the mess, "You silly kittens! Now both of you will have to clean up Cardamom's room all over again!"
-
-
-
-
-
-
-
-
-
+    "Girls-" Nutmeg pounced, I ducked. My mom had jst gotten up the stairs but wasnt qick enough to move out of the way. 
+    "Mom!"
+    ---------
+Once i realized what was happening it was too late, i tried switching directions but i couldnt, I was heading straight for my mother!
 
 
 
