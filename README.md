@@ -28,7 +28,7 @@ Calm and collected, likes to have attention but can be overprotective of her car
 Usually calm and collected, likes to cuddle with trustworthy people, 
 _________________________________________
 # Antagonist:
-     Pepper, a foster cat who is annoying and bossy (Is this better?)  Sulivan, (we can change the name later) THe old cat who lives in the forest
+     Pepper, a foster cat who is annoying and bossy. Sulivan, (we can change the name if u want) THe old cat who lives in the forest
 ## ---------------------
 # Problem:
 Nutmeg and Cardamom get fostered with Pepper for two months.  Nutmeg and Cardamoms mother leaves them and they have to figure out ways to srrvive in the wild. 
