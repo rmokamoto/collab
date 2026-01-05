@@ -1,4 +1,4 @@
-# collab
+a# collab
 Repo for collaborating with Becky
 ________________________________________________________________________________________________________________________________________________________
 ## Nutmeg and Cardamom 
@@ -35,4 +35,47 @@ Nutmeg and Cardamom get fostered with Pepper for two months.  Nutmeg and Cardamo
 ## --------------------
 # Location:
 Different foster homes, The forest behind Lidia's house,
+
+
+## Here we both will write about a paragraph of our story ideas, then we will decide on one to use. (or a new one.)
+
+_________________________________________________________
+## Ria's Story:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+________________________________________________________________________________________________________________________________________
+## Becky's Story:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+_________________________________________________________________________________________________________________________________________
 
