@@ -58,12 +58,14 @@ _________________________________________________________
 
 ________________________________________________________________________________________________________________________________________
 ## Becky's Story:
-    Welcome reader, into our magical forest.  You may be wondering how we got here, its a long story.  But, I suppose we do have time.  Come, come join s reader.  Sit down in the old rocking chair and listen as we tell our story.
-    It all started many years ago, in Whisperers Hollow . .. 
+    Welcome reader, into our magical forest. You may be wondering how we got here, its a long story.  But, I suppose we do have time.  Come, come join us, reader. Sit down in the old rocking chair and listen as we tell our story.
+    It all started many years ago, in Whisperer's Hollow . .. 
     "Stop it!" 
     "No, you stop!"
-    "Mom Nutmegs in my room again!"
-    "girls-" But its too late, Nutmegs 
+    "Mom, Nutmeg's in my room again!"
+    "Girls-" But it was too late, Nutmeg was pouncing on Cardamom's yarn balls and messing up her mossy bed.
+    "Nutmeg!" Cardamom ran back into her room and started chasing Nutmeg around and around and around, until they were both resting on the floor, catching their breath and staring at the mess they had created.
+    Their mom walked in, shaking her head at the mess, "You silly kittens! Now both of you will have to clean up Cardamom's room all over again!"
 
 
 
