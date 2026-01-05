@@ -23,11 +23,12 @@ Calm and collected, likes to have attention but can be overprotective of her car
 
 ### Negative Traits:
 Overprotective of caretakers, can sometimes hog attention, takes longer for her to warm up to new cats/humans
+
 ### Positive Traits:
 Usually calm and collected, likes to cuddle with trustworthy people, 
 ___________________________________
 # Antagonist:
-//Pepper, a foster cat who is annoying and bossy (Is this better?)
+//Pepper, a foster cat who is annoying and bossy (Is this better?) Sulivan, (we can change the name later) THe old cat who lives in the forest
 # Problem:
 Nutmeg and Cardamom get fostered with Pepper for two months. (Maybe also something else, like a loss?)
 # Location:
