@@ -9,20 +9,21 @@ __________________
 ## Cardamom:
 curious, friendly, outgoing, and a bit OVER playfull.  But on the inside Cardamom is scared of making a mistake or saying something wrong.
 
-### Negative:
-Irresponsible, Blindly optimistic, Opinionated 
+### Negative Traits:
+Irresponsible, Blindly optimistic, Opinionated, Reckless
 
-### Positive:
-Ambitious, Enthusiastic,
+### Positive Traits:
+Ambitious, Enthusiastic, Optimistic, Honest
 
+Overall, as a cat Cardamom is Gentle bt could get a little reckless sometimes.  She is also vary outgoing  and has a lot of energy.
 _____________________________________________________________________________________________________________________________________________________
 
 ## Nutmeg:
 Calm and collected, likes to have attention but can be overprotective of her caretakers and might take longer to warm up to other cats or new humans than usual. Enjoys cuddling with people she trusts. When she meets a bossy cat, she can act scared or shy.
 
-### Negative:
+### Negative Traits:
 
-### Positive:
+### Positive Traits:
 ___________________________________
 # Antagonist:
 //Nutmeg: Gets fostered with a mean, sassy cat who hogs all of the attention
