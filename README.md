@@ -62,7 +62,6 @@ ________________________________________________________________________________
     "Mom, Nutmeg's in my room again!"
     "Girls-" Nutmeg pounced, I ducked. My mom had jst gotten up the stairs but wasnt qick enough to move out of the way. 
     "Mom!"
-    ---------
 Once i realized what was happening it was too late, i tried switching directions but i couldnt, I was heading straight for my mother!
 
 
